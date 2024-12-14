@@ -1,2 +1,2 @@
-# the-fires-of-brimstone
-may god save us all
+# fires of brimstone
+ god save us all
